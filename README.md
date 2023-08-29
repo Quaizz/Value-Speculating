@@ -1,1 +1,1 @@
-# Quant
+# Value Speculating
